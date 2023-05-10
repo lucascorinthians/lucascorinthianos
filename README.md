@@ -5,7 +5,7 @@
 ![](https://media.tenor.com/iubj_ZG4L7gAAAAS/corinthians-mundial.gif)
 
 
-![](https://media.tenor.com/xVlgmC8rAHcAAAAC/corinthians-timao.gif)
+![](https://media.tenor.com/EkPgKfFQey0AAAAM/mav78aqui%C3%A9corinthians.gif)
 
 
 
@@ -13,7 +13,7 @@
 
 
 
-![](https://media.tenor.com/hbiKUexSQmMAAAAd/renato-augusto.gif)
+![](https://media.tenor.com/hbiKUexSQmMAAAAd/renato-augusto.gif)                              
 
 
 
