@@ -2,8 +2,7 @@
 
 
 
-
-
+![](https://media.tenor.com/iubj_ZG4L7gAAAAS/corinthians-mundial.gif)
 
 
 ![](https://media.tenor.com/xVlgmC8rAHcAAAAC/corinthians-timao.gif)
